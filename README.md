@@ -1,1 +1,1 @@
-The success of "Game of Thrones" led to increased demand for gritty, character-driven storytelling in the fantasy genre.
+Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
