@@ -1,1 +1,1 @@
-Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
+Quentin Tarantino's "Kill Bill" duology, released in 2003 and 2004, showcased his signature style of nonlinear storytelling and homage to genre cinema.
