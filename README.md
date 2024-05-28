@@ -1,1 +1,1 @@
-Sofia Coppola's "Lost in Translation" (2003) won the Academy Award for Best Original Screenplay and earned critical praise for its intimate portrayal of loneliness and connection.
+Disney Animation Studios experienced a renaissance with hits like "Frozen" (2013), which became the highest-grossing animated film of all time upon its release.
