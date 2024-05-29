@@ -1,1 +1,1 @@
-Disney Animation Studios experienced a renaissance with hits like "Frozen" (2013), which became the highest-grossing animated film of all time upon its release.
+"March of the Penguins" (2005), a French nature documentary, captivated audiences with its portrayal of emperor penguins' annual journey in Antarctica.
