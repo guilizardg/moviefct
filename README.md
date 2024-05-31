@@ -1,1 +1,1 @@
-The horror genre saw a resurgence with films like "The Sixth Sense" (1999) and "The Blair Witch Project" (1999), paving the way for hits like "Saw" (2004) and "The Ring" (2002).
+"The Irishman" (2019), directed by Martin Scorsese, showcased the potential of streaming platforms for financing and distributing ambitious, auteur-driven projects.
