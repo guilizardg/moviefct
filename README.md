@@ -1,1 +1,1 @@
-The show's legacy extends beyond television, with spin-off projects and potential prequels in development.
+The series features multiple noble houses vying for control of the Iron Throne of the Seven Kingdoms of Westeros.
