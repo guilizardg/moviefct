@@ -1,1 +1,1 @@
-The series features multiple noble houses vying for control of the Iron Throne of the Seven Kingdoms of Westeros.
+"The Lord of the Rings" film trilogy, directed by Peter Jackson, concluded with "The Return of the King" in 2003, winning multiple Oscars.
