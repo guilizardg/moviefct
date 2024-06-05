@@ -1,1 +1,1 @@
-"The Lord of the Rings" film trilogy, directed by Peter Jackson, concluded with "The Return of the King" in 2003, winning multiple Oscars.
+"Crouching Tiger, Hidden Dragon" (2000), directed by Ang Lee, became a global sensation, blending martial arts action with poignant drama and winning four Academy Awards.
