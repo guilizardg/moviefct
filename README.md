@@ -1,1 +1,1 @@
-"Spider-Man: Into the Spider-Verse" (2018) revolutionized animation with its innovative visual style and diverse representation of Spider-Man characters.
+"Eternal Sunshine of the Spotless Mind" (2004), directed by Michel Gondry, explored themes of memory and love, earning critical acclaim and a loyal fanbase.
