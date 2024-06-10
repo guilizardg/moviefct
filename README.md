@@ -1,1 +1,1 @@
-"Eternal Sunshine of the Spotless Mind" (2004), directed by Michel Gondry, explored themes of memory and love, earning critical acclaim and a loyal fanbase.
+Each season typically consists of ten episodes, with runtime ranging from 50 to 80 minutes per episode.
