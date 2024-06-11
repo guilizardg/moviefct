@@ -1,1 +1,1 @@
-Each season typically consists of ten episodes, with runtime ranging from 50 to 80 minutes per episode.
+The Night King, leader of the White Walkers, serves as the primary supernatural threat in the show's later seasons.
