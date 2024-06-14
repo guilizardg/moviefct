@@ -1,1 +1,1 @@
-Maisie Williams (Arya Stark) and Sophie Turner (Sansa Stark) auditioned for each other's roles initially.
+The show received widespread acclaim for its production values, including cinematography, visual effects, and makeup design.
