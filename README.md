@@ -1,1 +1,1 @@
-The show received widespread acclaim for its production values, including cinematography, visual effects, and makeup design.
+The Night King, leader of the White Walkers, serves as the primary supernatural threat in the show's later seasons.
