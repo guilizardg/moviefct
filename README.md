@@ -1,1 +1,1 @@
-"Moonlight" (2016) made history as the first LGBTQ+ film and the first film with an all-black cast to win the Academy Award for Best Picture.
+"Game of Thrones" has been referenced in numerous other media, including television shows, films, and even political discourse.
