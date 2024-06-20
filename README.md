@@ -1,1 +1,1 @@
-"Game of Thrones" has been referenced in numerous other media, including television shows, films, and even political discourse.
+Charlize Theron's transformative performance as serial killer Aileen Wuornos in "Monster" (2003) earned her the Academy Award for Best Actress.
