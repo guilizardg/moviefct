@@ -1,1 +1,1 @@
-Charlize Theron's transformative performance as serial killer Aileen Wuornos in "Monster" (2003) earned her the Academy Award for Best Actress.
+"Black Panther" (2018) made history as the first superhero film to receive a Best Picture nomination at the Academy Awards.
