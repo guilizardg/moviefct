@@ -1,1 +1,1 @@
-"Black Panther" (2018) made history as the first superhero film to receive a Best Picture nomination at the Academy Awards.
+"City of God" (2002), a Brazilian crime drama directed by Fernando Meirelles, garnered critical praise for its gritty portrayal of life in the slums of Rio de Janeiro.
