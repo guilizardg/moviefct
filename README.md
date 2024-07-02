@@ -1,1 +1,1 @@
-The series features multiple noble houses vying for control of the Iron Throne of the Seven Kingdoms of Westeros.
+Fans of "Game of Thrones" developed elaborate theories about the identity of Azor Ahai, the fate of Jon Snow, and other unresolved plot points.
