@@ -1,1 +1,1 @@
-Fans of "Game of Thrones" developed elaborate theories about the identity of Azor Ahai, the fate of Jon Snow, and other unresolved plot points.
+Quentin Tarantino's "Kill Bill" duology, released in 2003 and 2004, showcased his signature style of nonlinear storytelling and homage to genre cinema.
