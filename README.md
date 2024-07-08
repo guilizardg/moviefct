@@ -1,1 +1,1 @@
-Quentin Tarantino's "Kill Bill" duology, released in 2003 and 2004, showcased his signature style of nonlinear storytelling and homage to genre cinema.
+Netflix produced acclaimed films such as "Roma" (2018), directed by Alfonso Cuarón, which won three Academy Awards including Best Director.
