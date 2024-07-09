@@ -1,1 +1,1 @@
-Netflix produced acclaimed films such as "Roma" (2018), directed by Alfonso Cuarón, which won three Academy Awards including Best Director.
+The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.
