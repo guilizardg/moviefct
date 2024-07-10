@@ -1,1 +1,1 @@
-The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.
+The Night King, leader of the White Walkers, serves as the primary supernatural threat in the show's later seasons.
