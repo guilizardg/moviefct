@@ -1,1 +1,1 @@
-The Night King, leader of the White Walkers, serves as the primary supernatural threat in the show's later seasons.
+Sean Bean, who played Eddard Stark, was originally offered the role of King Robert Baratheon.
