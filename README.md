@@ -1,1 +1,1 @@
-Sean Bean, who played Eddard Stark, was originally offered the role of King Robert Baratheon.
+The series finale, "The Iron Throne," aired on May 19, 2019, marking the conclusion of the epic saga.
