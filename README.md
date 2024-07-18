@@ -1,1 +1,1 @@
-The series finale, "The Iron Throne," aired on May 19, 2019, marking the conclusion of the epic saga.
+The show's costume design, by Michele Clapton, garnered praise for its attention to detail and historical inspiration.
