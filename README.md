@@ -1,1 +1,1 @@
-The show's costume design, by Michele Clapton, garnered praise for its attention to detail and historical inspiration.
+"The Avengers" (2012) brought together iconic Marvel superheroes in a groundbreaking crossover event, setting the stage for future ensemble films.
