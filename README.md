@@ -1,1 +1,1 @@
-"The Avengers" (2012) brought together iconic Marvel superheroes in a groundbreaking crossover event, setting the stage for future ensemble films.
+DreamWorks Animation's "Shrek" franchise debuted in 2001, blending humor and fairy-tale elements to critical and commercial success.
