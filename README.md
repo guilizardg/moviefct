@@ -1,1 +1,1 @@
-Brie Larson made history as the first woman to lead a Marvel Cinematic Universe film with her portrayal of Captain Marvel in "Captain Marvel" (2019).
+Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
