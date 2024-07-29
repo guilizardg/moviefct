@@ -1,1 +1,1 @@
-Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
+"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.
