@@ -1,1 +1,1 @@
-"Get Out" (2017), directed by Jordan Peele, combined horror and social commentary to create a groundbreaking and thought-provoking film.
+Maisie Williams (Arya Stark) and Sophie Turner (Sansa Stark) auditioned for each other's roles initially.
