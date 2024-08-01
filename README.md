@@ -1,1 +1,1 @@
-Maisie Williams (Arya Stark) and Sophie Turner (Sansa Stark) auditioned for each other's roles initially.
+Arya Stark's journey from a young girl seeking revenge to a skilled assassin is a central arc of the series, portrayed by Maisie Williams.
